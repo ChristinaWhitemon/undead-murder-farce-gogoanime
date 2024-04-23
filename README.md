@@ -2,6 +2,8 @@
 
 ## In a world inhabited by vampires, golems, werewolves and other creatures, Aya Rindo, along with Tsugaru Shunichi and Shizuku Hasei, travels as supernatural detective, solving mysteries while she looks for her lost body
 
+<img src="https://github.com/ChristinaWhitemon/undead-murder-farce-gogoanime/blob/main/um.png"/>
+
 ***Undead murder farce is a treat for all fans of fantasy and mystery. The basic premise is that a severed head and her two assistants go around solving mysteries, very reminiscent of classic Holmes stories***
 
 *There are a few twists on the classic formula, however:*
